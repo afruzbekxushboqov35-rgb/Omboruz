@@ -1,1 +1,1 @@
-# Omboruz
+# Ombor.uz
